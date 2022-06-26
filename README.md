@@ -2,7 +2,6 @@
 
 **My Social Media**: ⬇️⬇️⬇️
 
-- <a href="https://www.instagram.com/llobeti.2009" target="_blank">Instagram</a>
 - <a href="https://twitter.com/_ImLlobeti4" target="_blank">Twitter</a>
 - <a href="https://chat.whatsapp.com/CZ3cQw9UuIMIGCauWepp6G" target="_blank">Whatsapp</a>
 - <a href="https://www.linkedin.com/in/yovenzor-singh-20a393239/" target="_blank">Linkedin</a>
